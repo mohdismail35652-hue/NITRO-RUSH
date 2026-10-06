@@ -1,2 +1,2 @@
-# NITRO-RUSH
+# NITRO-STREET
 Street legend 🏁
